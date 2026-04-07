@@ -1,0 +1,1 @@
+This is a work in progress for  GREEN MINDS YOUTH INITIATIVE from Kwale County. The organization is 1 year old and mainly deals with climate action . Our main target groups are school-going children and the youth at large
